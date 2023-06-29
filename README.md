@@ -1,2 +1,0 @@
-# mazin-
-for mazin
